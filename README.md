@@ -1,3 +1,7 @@
+
+### 大部分已失效
+
+
 brianfarrell432@gmail.com  密码： Thatguy1127 
 
 nosl2823@colorado.edu  密码： maxrules124 
