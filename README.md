@@ -1,6 +1,6 @@
 
 ![weixin](https://www.weju3jd.net/images/logobig.png)
-### 免费试用快连VPN
+### 免费试用快连VPN（获取最新TikTok安装账号）
 #### 可能是速度最快的VPN，3秒极速连接
 #### [安装地址1](https://d.z8n.net/ZVeUmK "悬停显示") &#8195;&#8195;&#8195;   [安装地址2](https://m-n.cc/rf4dYR "悬停显示") 
 #### 安装后打开填写我的ID：141408575
